@@ -1,3 +1,4 @@
-# bu Hu
+# Bu Hu
 
-Bu Hu website.
+Bu Hu Clothing
+VR Fashion
